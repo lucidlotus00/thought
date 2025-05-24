@@ -19,4 +19,4 @@ via our connection to the human world web.
 I want to use epistemology and the advent of the new "human web" to start the next wave of Human Evolution...
 The conscious evolution of humanity.
 
-email lucidlotus00@gmail.com to work on the thought project
+email lucidlotus00@gmail.com to work on the thought project!
