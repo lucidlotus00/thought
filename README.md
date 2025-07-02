@@ -1,6 +1,6 @@
 # thought
 Thought is the birth of the human centric world web... 
-Bringing human traits to the world web & its people!
+Bringing human traits to the world web⁴ & its people!
 
 The world web controls the way we handle ourselves, our lives, and most importantly our freedoms.
 If the world web was engineered to have human-centric traits & to aid in the evolution of human thought...
