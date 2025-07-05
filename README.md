@@ -14,6 +14,7 @@ A human-centric AI replacement that extends our human lives by teaching us how t
 
 It teaches us to elevate our world & minds at scale instead... 
 via our connection to the human world web.
+
 I want to use the advent of the new "human web" to start the next wave of Human Evolution...
 The conscious evolution of humanity.
 
